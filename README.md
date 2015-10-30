@@ -1,2 +1,4 @@
 # hello-hey
-_(:3_
+Aku cinta APCI
+
+I'm on APCI's practicum
